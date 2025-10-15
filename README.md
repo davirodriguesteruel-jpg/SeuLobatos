@@ -1,2 +1,1 @@
-# SeuLobatos
-Latrina Skibidi
+
